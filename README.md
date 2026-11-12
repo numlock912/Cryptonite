@@ -222,4 +222,4 @@ Cryptonite is the full free version, offering all features and updates included 
 Don’t miss out on all the entertainment that Cryptonite has to offer! Download now and start watching your favorite movies and shows for free!
 
 ---
-**Last updated:** 2026-11-12 01:21:13 UTC
+**Last updated:** 2026-11-12 09:26:37 UTC
